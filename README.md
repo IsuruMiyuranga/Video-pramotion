@@ -1,2 +1,3 @@
-# Video-pramotion
-For Earn Money from doing videography
+I am yuresh karunanayake
+A cinematographer 
+Script writer
